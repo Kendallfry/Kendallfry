@@ -2,7 +2,7 @@
 
 Chemical Lead | Aspiring Software Developer | ERG Co-Lead | Continuous Learner
 
-I’m a driven professional with 4+ years in the chemical and supply chain industry, currently serving as a Chemical Lead for Nalco Water in Bedford Park, IL. Since starting in 2020, I’ve grown from Operator I → Operator III → Lead, taking on responsibilities that strengthened my technical, operational, and leadership skills.
+I’m a driven professional with 5+ years in the chemical and supply chain industry, currently serving as a Chemical Lead for Nalco Water in Bedford Park, IL. Since starting in 2020, I’ve grown from Operator I → Operator III → Lead, taking on responsibilities that strengthened my technical, operational, and leadership skills.
 
 Alongside my role, I serve as the Co-Lead for Chicagoland’s EcoEssence ERG, where I help create community, support professional growth, and connect with leaders across the company.
 
