@@ -1,4 +1,4 @@
-👋 Hi, I'm Ken
+👋 Hi, I'm Kendall
 
 Chemical Lead | Software Developer | ERG Co-Lead | Continuous Learner
 
