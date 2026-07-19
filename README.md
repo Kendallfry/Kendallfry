@@ -18,6 +18,8 @@ HTML & CSS
 
 Python
 
+I am currently learning Java in my college course and each chance I get with my free time. In the next few months I will have been been immersed in Java and C++ for an extensive period. 
+
 My long-term goal is to transition into the IT and software development space, where I can merge my frontline operations experience with efficient, tech-driven solutions.
 
 🚀 What Drives Me
