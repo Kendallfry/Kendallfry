@@ -1,6 +1,6 @@
 👋 Hi, I'm Kendall
 
-Chemical Lead | Software Developer | ERG Co-Lead | Continuous Learner
+Chemical Lead | Software Developer | Continuous Learner
 
 I’m a driven professional with 5+ years in the chemical and supply chain industry, currently serving as a Chemical Lead for Nalco Water, an Ecolab company, in Bedford Park, IL. Since starting in 2020, I’ve grown from Operator I → Operator III → Lead, taking on responsibilities that strengthened my technical, operational, and leadership skills.
 
